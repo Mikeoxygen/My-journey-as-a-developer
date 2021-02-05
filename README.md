@@ -3,7 +3,7 @@
 My name is Michael Adebambo... it's on my profile though.
 What am i doing here? How did i end up writing this repo on GitHub?
 I'm just a 17year old boy though but i have a 🚀🚀 mentality.
-Well let's find out how it all begunz where we are and where I'm going to(The future 😏).
+Well let's find out how it all begun, where we are, and where I'm going to(The future 😏).
 
 <a href="#Bio/personal_info">Bio</a>
 
